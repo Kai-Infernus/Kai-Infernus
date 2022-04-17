@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Kai-Infernus
+- 😁 My name is Aditya Hiremath 
 - 👀 I’m interested in nothing.
 - 🌱 I’m currently learning Dark Arts.
 - 💞️ I’m looking to collaborate on Hypnotism and Brain control.
